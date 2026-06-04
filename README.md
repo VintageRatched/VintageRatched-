@@ -75,7 +75,7 @@ Please read carefully before contacting me.
 
 ✗ Do not pressure me into revealing personal information
 
-+ Bonus it is possible that I will use a translation to speak in English because I do not speak English very well. and first time interaction with new ppl is so awkward and nervous too me
++ Bonus it is possible that I will use a translation to speak in English because I do not speak English very well. and first time interaction with new ppl is so awkward and nervous to me
 ---
 
 🔒 𝑷𝒓𝒊𝒗𝒂𝒄𝒚 𝑩𝒐𝒖𝒏𝒅𝒂𝒓𝒊𝒆𝒔
@@ -166,6 +166,10 @@ Before interaction or messaging:
 ✗ No invasive personal questions
 
 ✗ No sharing my information without permission
+
+✗ No copying my video without my permission 
+
+✗ do not copy my acc or taking my stuff or video !
 
 ---
 
